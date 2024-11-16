@@ -2,7 +2,7 @@
 - 👀 I’m interested in blockchain, AI
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on crypto
-- 📫 How to reach me ...
+- 📫 My fb:https://www.facebook.com/bnc.null.7
 - 😄 Pronouns: Moi
 - ⚡ Fun fact: Thay đổi thế giới
 
